@@ -1,1 +1,1 @@
-meoqi mały kłamczuszek
+meoqi słoneczko
